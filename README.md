@@ -1,2 +1,2 @@
 # SpookyCreations
-A collection of creations by Sir Sandalots
+A collection of spooky creations by Sir Sandalots
